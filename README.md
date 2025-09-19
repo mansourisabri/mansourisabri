@@ -87,5 +87,5 @@ I am passionate about designing scalable systems, implementing clean architectur
 
 📫 Let's Connect  
 
-•  📧 [sabri.mansouri@esprit.tn](mailto:sabri.mansouri@esprit.tn)  
+•  📧 Mail: [sabri.mansouri@esprit.tn](mailto:sabri.mansouri@esprit.tn)  
 •  💼 LinkedIn: [linkedin.com/in/sabri-mansouri⁩](https://www.linkedin.com/in/sabri-mansouri-222075322/)  
